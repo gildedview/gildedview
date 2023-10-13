@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gildedview
+- 👀 I’m interested in teacher labor market economics and ed policy.
+- 🌱 I’m currently learning to use R, and style my curly hair (truly a scholarly pursuit).
+- 📫 How to reach me: gildedview@gmail.com
